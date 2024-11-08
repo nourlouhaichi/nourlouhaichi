@@ -1,6 +1,6 @@
 # Nour Louhaichi
 
-### Future Computer Engineer
+### Cloud engineering student ☁️
 
 **About me**
 - 💡 Motivated, with a good sense of leadership, strong communication skills, and enthusiasm for teamwork in dynamic environments.
